@@ -1,2 +1,2 @@
 # Purple || 🫀 || Ribbonzz
-hi we're a system!
+hi we're a system! (fleshbodiez collective)
